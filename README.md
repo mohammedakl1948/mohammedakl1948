@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mohammedakl1948
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning computer science
+- 🌱 I’m a computer scienctist
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mohammedakl6671@gmail.com
                       whatsapp: +96176712486
